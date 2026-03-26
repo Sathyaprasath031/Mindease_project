@@ -1,2 +1,2 @@
-https://sathyaprasath031.github.io/Mindease---mental-wellness-website/ 
+https://sathyaprasath031.github.io/Mindease_project/
 visit my site
